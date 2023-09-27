@@ -1,1 +1,1 @@
-tech is cool
+tech is so cool
